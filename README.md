@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sohihulislam
 - ✨ Stoicism
-- ⚔ Panglima Besar AROS'S
-- ❤‍🩹 
+- Ketika semua orang nganggep gua sebagai sampah lo nganggep gua sebagai manusia
+- ✨🤍
 
 <!---
 Sohihulislam/Sohihulislam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
